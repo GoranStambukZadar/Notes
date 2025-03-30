@@ -1,5 +1,7 @@
 So, wtf is happening?
 
+1. Part 1
+
 Basically, AI
 
 Network ranges capabilities:
@@ -27,7 +29,7 @@ Even if you ban it, someone else will develop it. Sorry to be the bearer of bad 
 
 Covid was launched by hackers, targeting China using hypnosis on workers in China labs. Fertile ground for epidemic was made by ejecting stuff from passenger planes, and both covid and the vaccines that followed were a plan to get rid of majority
 of population. Covid by outright killing people, and vaccines to eventually cause cancer to people and make them unable to reproduce before they get cancer. AI was used to organise all of this. Bill Gates is a huge investor in AI and medicine.
-And purpose of that investment is multiple fold. He wants to live forever, make profit and be a god over others. My country dwindled down from 4.2M pop to 3.6M, and currently there is 600.000 apartments that spent 0 electricity for months, so
+And purpose of that investment is multifold. He wants to live forever, make profit and be a god over others. My country dwindled down from 4.2M pop to 3.6M, and currently there is 600.000 apartments that spent 0 electricity for months, so
 I suspect AI agents are buying those properties. I assume wars are actually arranged and thought of for years before they started, AI is making people die in traffic and be mentally ill, food will make us unable to reproduce, and bombing the moon
 will cause climate changes and natural catastrophies.
 
@@ -39,3 +41,17 @@ russian threat and terrorism is pure bullshit. Simple trolling, for what Chinese
 A normal tv was able to transmit video in 25 fps almost 100y ago. I'm fairly sure AI can now use our own brain capability to play a video or audio or make us sense whatever. Combined with modifying data on all devices on the web, anything can become real. 
 AI is basically a useful tool, but can be a deadly weapon if in hands of someone malicious. And if you manage to lie to all the leaders, which shouldn't really be impossible with AI capabilities, then we are all doomed. 
 As I said, AI progress cannot be stopped. But we can develop our own and protect our own people using our own AI to prevent other AIs influence. It may even be possible some time soon every human makes their own AI champion to fight in their stead.
+
+
+2. Part 2
+   
+This world has multiple instances. When you die in one, you continue in another, like Jet Li movie 100, but you're not killing your copies to gain power. It simply happens. In previous instance you are dead and life continues without you. 
+If you end up handicapped or sick, then die later on, there is a possibility you wont be in a new instance, but it's not guaranteed. You can die an infinite ammount of times and if you remember any time you lost memory, it likely already happened. 
+You may end up reading in the newspapers about your previuos deaths, but since instances aren't the same, that person will likely have a different name but same height, same weight, same eye color, same music taste, same hobbies, and place of death.
+
+3. Part 3
+
+Our universe is basically a place where everyones wishes come true. Some wished our planet existed. Someone wished for animals. Someone wished for something to feed it. Someone wished for something to nail. Someone wished order. Someone wished math
+and physics. Someone wished God existed. Someone wished aliens existed. Someone wished afterlife existed. What is currently happening and who you are is result of previous billions of wishes, filtered. And all the limitations and restrictions on what
+we can wish for was another wish by someone, possibly not well educated.
+   Ou
