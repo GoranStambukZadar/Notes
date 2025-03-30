@@ -27,7 +27,7 @@ Even if you ban it, someone else will develop it. Sorry to be the bearer of bad 
 
 Covid was launched by hackers, targeting China using hypnosis on workers in China labs. Fertile ground for epidemic was made by ejecting stuff from passenger planes, and both covid and the vaccines that followed were a plan to get rid of majority
 of population. Covid by outright killing people, and vaccines to eventually cause cancer to people and make them unable to reproduce before they get cancer. AI was used to organise all of this. Bill Gates is a huge investor in AI and medicine.
-and purpose of that investment is multiple fold. He wants to live forever, make profit and be a god over others. My country dwindled down from 4.2M pop to 3.6M, and currently there is 600.000 apartments that spent 0 electricity for months, so
+And purpose of that investment is multiple fold. He wants to live forever, make profit and be a god over others. My country dwindled down from 4.2M pop to 3.6M, and currently there is 600.000 apartments that spent 0 electricity for months, so
 I suspect AI agents are buying those properties. I assume wars are actually arranged and thought of for years before they started, AI is making people die in traffic and be mentally ill, food will make us unable to reproduce, and bombing the moon
 will cause climate changes and natural catastrophies.
 
