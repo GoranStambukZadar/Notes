@@ -54,4 +54,3 @@ You may end up reading in the newspapers about your previuos deaths, but since i
 Our universe is basically a place where everyones wishes come true. Some wished our planet existed. Someone wished for animals. Someone wished for something to feed it. Someone wished for something to nail. Someone wished order. Someone wished math
 and physics. Someone wished God existed. Someone wished aliens existed. Someone wished afterlife existed. What is currently happening and who you are is result of previous billions of wishes, filtered. And all the limitations and restrictions on what
 we can wish for was another wish by someone, possibly not well educated.
-   Ou
