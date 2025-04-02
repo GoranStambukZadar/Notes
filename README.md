@@ -124,7 +124,10 @@ They follow me everywhere online I go and instruct people how to deal with me. T
 
 To add some details, it seems I was hypnoed and ordered to do things since I was a toddler. When I developed schizofrenia 20y ago, I beleive it had to do with phone line being switched to line 2 at my work place, and I was ordered to google pedo stuff, 
 so they had excuse to cause me schizophrenia, make my word worthless after that, aaand tell people I'm pedo so they get everyone against me. I can maybe understand rapists, but my friends turned on me back in 96, when I was 16 and don't know what it is
-I did to them that was so terrible.
+I did to them that was so terrible. So after they made me schizo, they hacked my PC for next 20+ years, told my parents, gays and everyone else I'm pedo, so I ended up raped over 200 times, they stopped me from finding a gf in the past 10y+, they made
+me a slave through hypnosis, they made a woman I wanted to marry rape me via that hypno command and sleep with my best friend, and lately they somehow cause physical harm to me via my PC, 
+and all because I googled like 3 pedo films 20+ years ago, and even tho I'm not a pedo nor I ever touched a child in my life. So I ended up developing security software and work as a guard as a result that hypno command and my software, if and when
+operating normally will actually serve to protect real bad guys.
 
 For some reason, I seem to come across all my ex women in my life when I go to store, but since they disgust me and I'm paranoid why are they there I don't even say hi, and it seems to be an excuse to rape me as I end up raped day later.
 Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleeding from my behind a day later. Sometimes I get the shakes as if I'm suffering some drug withdrawal.
