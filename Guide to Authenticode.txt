@@ -1,0 +1,13 @@
+Windows authenticode basically serves as an antivirus. Authenticode key is this:
+
+[HKEY_LOCAL_MACHINE\SOFTWARE\Policies\Microsoft\Windows\safer\CodeIdentifiers]
+"AuthenticodeEnabled"=dword:00000000
+
+Possible values of above registry key are as follows:
+
+; 0x00040000: disallowed
+; 0x00020000: untrusted
+; 0x00010000: constrained (alias restricted)
+; 0x00001000: normal user (alias basic user)
+; 0x00000300: audit
+; 0x00000000: fully trusted (alias unrestricted)
