@@ -11,3 +11,8 @@ Possible values of above registry key are as follows:
 ; 0x00001000: normal user (alias basic user)
 ; 0x00000300: audit
 ; 0x00000000: fully trusted (alias unrestricted)
+
+So, you might not want to alter the key to 40k, as that will restrict all software from running.
+Andyful on github has this entire registry key configured, with exceptions and blocked stuff.
+However, if you don't want to use his software, you can maybe just set this key to 10k, to block
+execution of untrusted scripts and exe files with low confidence and call it a day.
