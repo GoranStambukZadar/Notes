@@ -96,8 +96,6 @@ I meet a girl called Marina Šećer, and take her to a small island in area of Z
 
 My mom and my dog die, and I get family pension as 100% work unable, 70% off of my moms pension.
 
-All in all, I got raped over 20 times, by both men and women, which I still don't remember and I believe there is a command word in my subconscious that makes me submissive when I hear it.
-
 I hear Jadranka has a daughter too, but I think the child is either my dads, or my 2nd floor neighbours. If it's mine, then it's possible I have 4 kids I'm just biological father of.
 
 Filip invites me to some pizzeria, and I come, only to suddenly find myself out of pizzeria. I go back in, Filip orders lasagne for him and his 2 buddies and pretends I don't exist, 
@@ -135,3 +133,7 @@ If I am receiving injections, it is both against my will and since I don't remem
 Meaning my father is either lying to psychatrists about my condition, or both him and the psychiatrists are a part of some organized crime group. I'm also willing to bet the command word in my subconscious that makes me submissive
 was some shrinks doing after my dad likely lied I was agressive. They usually give me antidepressants after raping me even tho I'm not the slightest depressed, so I end up in a good mood and laughing with a sore ass after getting raped.
 I also congratulated new year to my 2nd floor neighbour that raped me.
+
+Since I got attacked at IT fair back in 96, and inside OS/2 console, an OS I was a shill of, and I disliked Windows, there is a possibily there is someone from tech world behind all of this. Maybe Microsoft, maybe IBM, maybe BUG or some other
+IT magazine. Who ever it was, it made sure I get fucked from all sides. Who ever it could turn against me, it did. I assume it kept following me online everywhere I went and telling people things and maybe forcing me to confirm it. It also seems
+the hackers it hired actually all ended up quitting their jobs, but since they signed NDAs, they couldn't tell anyone about what was going on.
