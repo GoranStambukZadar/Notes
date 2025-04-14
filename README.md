@@ -137,3 +137,6 @@ I also congratulated new year to my 2nd floor neighbour that raped me.
 Since I got attacked at IT fair back in 96, and inside OS/2 console, an OS I was a shill of, and I disliked Windows, there is a possibily there is someone from tech world behind all of this. Maybe Microsoft, maybe IBM, maybe BUG or some other
 IT magazine. Who ever it was, it made sure I get fucked from all sides. Who ever it could turn against me, it did. I assume it kept following me online everywhere I went and telling people things and maybe forcing me to confirm it. It also seems
 the hackers it hired actually all ended up quitting their jobs, but since they signed NDAs, they couldn't tell anyone about what was going on.
+
+I also have a theory Zadar mafia, a part of which is my father, set me up with a "gf". A lady which comes to visit me once a month, then my dad tells me the hypno word, then I end up bleeding from my behind after her visit. It's possible shes trans.
+I don't even know what my gf looks like, and they seem to prevent all my efforts of finding a normal gf.
