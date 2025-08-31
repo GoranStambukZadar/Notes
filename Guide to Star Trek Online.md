@@ -136,7 +136,7 @@ maco engine and gamma singularity core (for doing tour the galaxy daily mission)
 
 # Tips
 
-If you get shot at, placate the target. 
+If you get shot at, placate the attacker. 
 
 Move as fast as you can by triggering your fortified engines with aux to sif, your conn officer from phoenix, epte and evasive maneouvers.
 
@@ -152,7 +152,7 @@ Haste is very much important
 
 Sometimes only diff between you doing 100k dps and someone doing 300k is their max hit so crits (even from pets) are very much important.
 
-Avoid EPG builds unless you are in all EPG team because taking out enemy shields both brings dps, and if you don't take out their shields, makes your team job more difficult.
+High defense value will result with reduced dmg taken. Tho bonus accuracv is useless. Bonnus Accuracy is only needed in pvp, since everyone has increased defense value.
 
 Get all reps maxed out even if you don't need the gear. They will appear in your passives and you may need the traits, ship modules and respecs.
 
@@ -179,6 +179,15 @@ Advanced consoles you can only slot 1 type of, so slot ones your ship has most o
 Uni console slot can slot any type of console so get your 3 experimental upgrades to get to x2.
 
 If you buy cstore version of a fleet ship, you can get fleet version for only 1 module and each rep you finish will reward you 1 module.
+
+It is terribly important to debuff your enemy resists. And since it's hard to get resists much over 50%, and shields will prevent 90% dmg to hull,
+I suggest you use attack pattern beta. Shield resists you can't debuff, shpen will actually increase bleedthrough to hull. 
+
+You want to kill your target as fast as possible, so any dmg that bypasses shields is good. Lorca console may be of use too.
+
+Regarding cptn space skills, you need to calc how much does each of the 3 slots give you. Even if it sounds logical to put 3 points into shpen,
+I advise against it, since the gain is small. Always look for what gives most where, then stack it there. 
+For example, ships weapons are ideal for crtd or dmg mods.
 
 # Space Keybinds
 
